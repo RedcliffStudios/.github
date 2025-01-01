@@ -1,2 +1,2 @@
-![logo-fullname](https://github.com/RedcliffStudios/.github/assets/62565537/e57821f4-11cf-45bc-a45b-b0d31253ec34)
+![Logo](https://github.com/user-attachments/assets/009d9803-e096-43c5-9193-c2305c12a39b)
 A bunch of people who make Roblox games.
